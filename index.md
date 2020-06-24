@@ -16,3 +16,4 @@ Tom überragt die meisten Männer um Haupteslänge, ist schlank, hat hellbraunes
 * grünliche Augen
 * große Gestalt
 
+> Arbeit ist Gebet, Bruder.
