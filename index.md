@@ -10,4 +10,9 @@ Als er mit Ellen zusammenlebt, bevorzugt er auf der Baustelle seinen leiblichen 
 
 Tom überragt die meisten Männer um Haupteslänge, ist schlank, hat hellbraunes Haar, grünliche Augen mit braunen Flecken und einen lockigen braunen Bart.
 
+## Eigenschaften
+
+- hellbraunes Haar
+- grünliche Augen
+- große Gestalt
 
