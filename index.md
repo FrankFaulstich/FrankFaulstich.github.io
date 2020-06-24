@@ -12,7 +12,7 @@ Tom überragt die meisten Männer um Haupteslänge, ist schlank, hat hellbraunes
 
 ## Eigenschaften
 
-- hellbraunes Haar
-- grünliche Augen
-- große Gestalt
+* hellbraunes Haar
+* grünliche Augen
+* große Gestalt
 
